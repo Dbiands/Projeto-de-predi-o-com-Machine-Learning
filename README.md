@@ -1,4 +1,4 @@
-# 👩🏻‍💻 Claudio Fabian Stychnicki
+# Claudio Fabian Stychnicki
 
 **`Consultor Sênior de Planejamento Comercial e estratégico de MERCADO, Business Intelligence e Data Scientist for Business`**
 
